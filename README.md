@@ -1,16 +1,15 @@
-## Hi there 👋
+Boa boa véinho, Caleb aqui!
 
-<!--
-**7calebb/7calebb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Pronomes: Santos\Futebol Clube
+Sexualidade: Neymar Jr
+Fã do maior taurino da atualidade, vulgo Chico Coin
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Santos, Santos
+Gol!
+Agora, quem dá a bola é o Santos
+O Santos é o novo campeão
+Glorioso alvinegro praiano
+Campeão absoluto deste ano
+
+Objetivo de carreira: Ser dono do CAPS
